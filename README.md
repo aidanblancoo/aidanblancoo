@@ -2,8 +2,8 @@ Hi! You are viewing the profile of @aidanblancoo
 
 Here are some things about him:
 
-- 🌱 I’m currently studying at Old Dominion University
-- 💬 Ask me about star wars, sports, or valorant.
-- ⚡ Fun fact: I used to have 5 chickens.
-- 📫 How to reach me: aibigblue@gmail.com
+- 🌱 He is currently studying at Old Dominion University
+- 💬 Ask him about star wars, sports, or valorant.
+- ⚡ Fun fact: He used to have 5 chickens.
+- 📫 How to reach him: aibigblue@gmail.com
 
